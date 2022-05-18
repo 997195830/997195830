@@ -1,4 +1,4 @@
-- 👋 oii eu sou André 😉
+- 👋 oii eu sou André 😉 @andre.jesud.silva@escola.pr.gov.be
 - 👀 eu estou gosto muito de aprender mais..
 - 🌱 eu gosto da natureza 😃
 - 💞️ sou mais reconhecido como "Dafé"
